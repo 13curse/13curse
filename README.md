@@ -2,7 +2,7 @@
 
 I'm Sarah, currently a **student** at **42 Nice** 🇫🇷
 
-I'm interested in **video games** 🎮 (my favorite one is Red Dead Redemption 2), **manual crafting** 🖍️ (making jewelry and drawing)  and **music** 🎧
+I'm interested in **video games** 🎮 (my favorite one is Red Dead Redemption 2) **manual crafting** 🖍️ (making jewelry and drawing)  and **music** 🎧
 
 Below you will be able to **get a look** 👀 at few **projects** that I have made solo ☝️ or with teammates 🤝
 

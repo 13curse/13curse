@@ -2,7 +2,7 @@
 
 I'm Curse, currently a female **student** at **42 Nice** 🇫🇷
 
-I'm interested in **video games** 🎮 (my favorite one is RDR2 🐎) and **music** 🎧 (SOAD and Deftones)
+I'm interested in **video games** 🎮 (my favorite one is RDR2 🐎), **e-sport** (especially League Of Legends) and **music** 🎧 (SOAD and Deftones)
 
 Below you will be able to **get a look** 👀 at few **projects** that I have made solo ☝️ or with teammates 🤝
 
